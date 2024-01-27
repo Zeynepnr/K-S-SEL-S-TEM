@@ -1,1 +1,1 @@
-# K-S-SEL-S-TEM
+# Kısısel-sitem
